@@ -22,3 +22,10 @@ Forget Alien vs. Predator. Not realistic enough. Try this one... Cowboy vs. Skin
 Hollywood hasn't made a movie out of the concept yet. 
 
 <img width="1024" height="1024" alt="Gemini_Generated_Image_iht5xkiht5xkiht5 (2)" src="https://github.com/user-attachments/assets/db44ebc9-3dcc-4e51-997c-f6b5f9085ecb" />
+
+------------------------------------------------------------------------------------------------------------------------  
+
+Those that have never met God but have met goddesses, and maybe that is why. And it's definitely not a narco-terrorist 
+conspiracy. Legal doctor. Good doctor. 
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_tl2s9dtl2s9dtl2s (1)" src="https://github.com/user-attachments/assets/ba0d6cb3-5c82-4e21-8ff8-fb3c14640db7" />
