@@ -75,6 +75,6 @@ he's not rich. Reason.
 --------------------------------------------------------------------------------------------------------------------------  
 
 It is big decisions like these that get made on some of the most basic...errrhm fundamental principles. And this is also another principle 
-that is so intrinsically linked. It would all come down to the basics. 
+that is so intrinsically linked. Things would all go back down to the basics. 
 
 <img width="1024" height="1024" alt="Gemini_Generated_Image_jid3jojid3jojid3" src="https://github.com/user-attachments/assets/36f05d00-78dc-4ab5-a737-dbd50a2eed80" />
