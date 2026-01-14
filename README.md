@@ -11,3 +11,7 @@ Another case of seeking justice against institutions, against two religions in t
 
 ----------------------------------------------------------------------------------------------------------------------
 
+After they made him outcast, they decided it was best to drown the airwaves. He must have 
+overheard their plan to keep killing him softly. 
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_qkf1qpqkf1qpqkf1 (1)" src="https://github.com/user-attachments/assets/7f3bef41-61d6-451d-b32f-566ff3c1b6af" />
