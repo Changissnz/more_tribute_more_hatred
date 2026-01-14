@@ -65,3 +65,9 @@ De la boca, zu die lieben.
 
 <img width="1024" height="1024" alt="Gemini_Generated_Image_bq20zibq20zibq20" src="https://github.com/user-attachments/assets/a76c6f7d-a081-488c-bc87-552f404ebe04" />
 
+--------------------------------------------------------------------------------------------------------------------------  
+
+Such humility. Seldom goes unpunished. And it's not as if what he's saying is true. He's probably just a pessimist. And that's why 
+he's not rich. Reason. 
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_9lzymj9lzymj9lzy" src="https://github.com/user-attachments/assets/0d1f874a-8fc7-401a-9be3-d66916039d95" />
