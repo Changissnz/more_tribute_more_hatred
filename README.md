@@ -78,3 +78,10 @@ It is big decisions like these that get made on some of the most basic...errrhm 
 that is so intrinsically linked. Things would all go back down to the basics. 
 
 <img width="1024" height="1024" alt="Gemini_Generated_Image_jid3jojid3jojid3" src="https://github.com/user-attachments/assets/36f05d00-78dc-4ab5-a737-dbd50a2eed80" />
+
+--------------------------------------------------------------------------------------------------------------------------
+
+I don't know about this. Sounds like a Debbie Downer to me. It's like he's already setting himself up for the ultimate rejection, when 
+all the rejections in the past is the test for the acceptance. Who knows? Maybe this is just cliche. I guess he may be right. 
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_cqrdlxcqrdlxcqrd" src="https://github.com/user-attachments/assets/8421ec50-aaf7-4486-b65a-9e61662ba736" />
