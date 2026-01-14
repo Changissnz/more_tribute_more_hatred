@@ -29,3 +29,10 @@ Those that have never met God but have met goddesses, and maybe that is why. And
 conspiracy. Legal doctor. Good doctor. 
 
 <img width="1024" height="1024" alt="Gemini_Generated_Image_tl2s9dtl2s9dtl2s (1)" src="https://github.com/user-attachments/assets/ba0d6cb3-5c82-4e21-8ff8-fb3c14640db7" />
+
+-------------------------------------------------------------------------------------------------------------------------  
+
+Talk is so cheap, isn't it? Like, so what? He's in debt to the doctor and doesn't want to pay up. It's not like he has 
+any way to solve this human problem.  
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_5apujk5apujk5apu" src="https://github.com/user-attachments/assets/8000371e-e993-43af-8244-fbb946e78840" />
