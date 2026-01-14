@@ -60,7 +60,8 @@ how that goes. Reconstruction. Deconstruction. All in one day.
 
 --------------------------------------------------------------------------------------------------------------------------  
 
-Well, it's not wrong to imagine this. Plenty of low-quality TV shows for example. How do you say, network effect? Legal dramatization.  
+Well, it's not wrong to imagine this. Plenty of low-quality TV shows for example. How do you say, network effect? Legal dramatization? 
+De la boca, zu die lieben. 
 
 <img width="1024" height="1024" alt="Gemini_Generated_Image_bq20zibq20zibq20" src="https://github.com/user-attachments/assets/a76c6f7d-a081-488c-bc87-552f404ebe04" />
 
