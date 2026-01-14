@@ -36,3 +36,10 @@ Talk is so cheap, isn't it? Like, so what? He's in debt to the doctor and doesn'
 any way to solve this human problem. He is bluffing. He is so bluffing. 
 
 <img width="1024" height="1024" alt="Gemini_Generated_Image_5apujk5apujk5apu" src="https://github.com/user-attachments/assets/8000371e-e993-43af-8244-fbb946e78840" />
+
+-------------------------------------------------------------------------------------------------------------------------  
+
+That's very typical. If you were a kid, it would come as a shock to you the great lengths people go. It looks like this 
+man intends for the two to go to greater lengths, to hell. 
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_evy6nevy6nevy6ne" src="https://github.com/user-attachments/assets/dcbbb3a1-3274-4005-afec-404b47c98d65" />
