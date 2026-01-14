@@ -43,3 +43,10 @@ That's very typical. If you were a kid, it would come as a shock to you the grea
 man intends for the two to go to greater lengths, to hell. 
 
 <img width="1024" height="1024" alt="Gemini_Generated_Image_evy6nevy6nevy6ne" src="https://github.com/user-attachments/assets/dcbbb3a1-3274-4005-afec-404b47c98d65" />
+
+--------------------------------------------------------------------------------------------------------------------------  
+
+A helping hand that surely comes is from an owner that wanted to extend that hand. Once the "real world" hits, no one 
+really respects or pays anything more than what they have, anyways.  
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_87fwcy87fwcy87fw" src="https://github.com/user-attachments/assets/1eef2c38-923e-41ff-983f-018d4670d9d1" />
