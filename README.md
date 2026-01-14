@@ -71,3 +71,10 @@ Such humility. Seldom goes unpunished. And it's not as if what he's saying is tr
 he's not rich. Reason. 
 
 <img width="1024" height="1024" alt="Gemini_Generated_Image_9lzymj9lzymj9lzy" src="https://github.com/user-attachments/assets/0d1f874a-8fc7-401a-9be3-d66916039d95" />
+
+--------------------------------------------------------------------------------------------------------------------------  
+
+It is big decisions like these that get made on some of the most basic...errrhm fundamental principles. And this is also another principle 
+that is so intrinsically linked. It would all come down to the basics. 
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_jid3jojid3jojid3" src="https://github.com/user-attachments/assets/36f05d00-78dc-4ab5-a737-dbd50a2eed80" />
