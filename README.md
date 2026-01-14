@@ -33,6 +33,6 @@ conspiracy. Legal doctor. Good doctor.
 -------------------------------------------------------------------------------------------------------------------------  
 
 Talk is so cheap, isn't it? Like, so what? He's in debt to the doctor and doesn't want to pay up. It's not like he has 
-any way to solve this human problem.  
+any way to solve this human problem. He is bluffing. He is so bluffing. 
 
 <img width="1024" height="1024" alt="Gemini_Generated_Image_5apujk5apujk5apu" src="https://github.com/user-attachments/assets/8000371e-e993-43af-8244-fbb946e78840" />
