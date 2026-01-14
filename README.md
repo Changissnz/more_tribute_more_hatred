@@ -57,3 +57,10 @@ How cogent and strategic. And such beautiful words too, only because it came fro
 how that goes. Reconstruction. Deconstruction. All in one day.  
 
 <img width="1024" height="1024" alt="Gemini_Generated_Image_fly48fly48fly48f" src="https://github.com/user-attachments/assets/c9401d2e-a6ef-4aa5-a0e3-a772b8dd161b" />
+
+--------------------------------------------------------------------------------------------------------------------------  
+
+Well, it's not wrong to imagine this. Plenty of low-quality TV shows for example. How do you say, network effect? Legal dramatization.  
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_bq20zibq20zibq20" src="https://github.com/user-attachments/assets/a76c6f7d-a081-488c-bc87-552f404ebe04" />
+
