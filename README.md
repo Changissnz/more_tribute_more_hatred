@@ -50,3 +50,10 @@ A helping hand that surely comes is from an owner that wanted to extend that han
 really respects or pays anything more than what they have, anyways.  
 
 <img width="1024" height="1024" alt="Gemini_Generated_Image_87fwcy87fwcy87fw" src="https://github.com/user-attachments/assets/1eef2c38-923e-41ff-983f-018d4670d9d1" />
+
+--------------------------------------------------------------------------------------------------------------------------  
+
+How cogent and strategic. And such beautiful words too, only because it came from a beautiful woman. You know...you know 
+how that goes. Reconstruction. Deconstruction. All in one day.  
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_fly48fly48fly48f" src="https://github.com/user-attachments/assets/c9401d2e-a6ef-4aa5-a0e3-a772b8dd161b" />
