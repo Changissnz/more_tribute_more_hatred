@@ -85,3 +85,10 @@ I don't know about this. Sounds like a Debbie Downer to me. It's like he's alrea
 all the rejections in the past is the test for the acceptance. Who knows? Maybe this is just cliche. I guess he may be right. 
 
 <img width="1024" height="1024" alt="Gemini_Generated_Image_cqrdlxcqrdlxcqrd" src="https://github.com/user-attachments/assets/8421ec50-aaf7-4486-b65a-9e61662ba736" />
+
+--------------------------------------------------------------------------------------------------------------------------  
+
+We're all too familiar with this kind of thing. False pretense. Wrong source. It looks like a meaningful interaction. Looks like the 
+jester might be trying to seduce the other guy... a lumberjack? 
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_x6z595x6z595x6z5" src="https://github.com/user-attachments/assets/7d2b8ce2-3aef-491f-b1d6-ceb927389df9" />
