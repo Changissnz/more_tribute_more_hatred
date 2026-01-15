@@ -103,5 +103,10 @@ break of dawn, whatever that means.
 
 -----------------------------------------------------------------------------------------------------------------------------  
 
+"No good deed goes unpunished" is the tip of the iceberg, and not very meaningful without interpretation. This is what kinda happens 
+when people have to make a living through sectarian work. People cannot stay together, but can die alone while also dying together... 
+you know... you know that kind of harmonic irony. 
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_jf7e56jf7e56jf7e" src="https://github.com/user-attachments/assets/512b4eaf-ce9d-4ec5-989e-0dcf91c228e3" />
 
 
