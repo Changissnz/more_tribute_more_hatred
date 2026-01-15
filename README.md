@@ -92,3 +92,16 @@ We're all too familiar with this kind of thing. False pretense. Wrong source. It
 jester might be trying to seduce the other guy... a lumberjack? 
 
 <img width="1024" height="1024" alt="Gemini_Generated_Image_x6z595x6z595x6z5" src="https://github.com/user-attachments/assets/7d2b8ce2-3aef-491f-b1d6-ceb927389df9" />
+
+---------------------------------------------------------------------------------------------------------------------------  
+
+So there are these experts sitting there in a room, working, right. And then one of them makes a revelation about some other guy. And 
+they're going to act in awe and keep up with their business as usual. Civility over barbarity, upper class over lower class, till the 
+break of dawn, whatever that means. 
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_xfbvl7xfbvl7xfbv" src="https://github.com/user-attachments/assets/2678d36f-2274-40cd-9d99-3e6d51ea6275" />
+
+-----------------------------------------------------------------------------------------------------------------------------  
+
+
+
