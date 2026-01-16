@@ -151,3 +151,55 @@ technically doing fine. There's no need for more. Modest don't ask. And to ask i
 being. This the world of order. 
 
 <img width="1024" height="1024" alt="Gemini_Generated_Image_ianxd2ianxd2ianx" src="https://github.com/user-attachments/assets/dfcbb2bf-bc5e-4928-ac82-748216550699" />
+
+=================================================================================================================================
+
+## Part 2: Globalized Perspective  
+
+The crazy thing is don't think that the potential doesn't exist. Also don't think the potential is being used for anything but mostly for inward control. 
+Inward control for outward display of perfection. That's the real strategy. 
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_99ege799ege799eg" src="https://github.com/user-attachments/assets/f0dbcf6d-8e90-4e79-a860-897392043391" />
+
+--------------------------------------------------------------------------------------------------------------------------------
+
+The global monetary system sure took a few rough patches. They were supposed to be manageable patches, rough but manageable. But things change, 
+people move on. What started as a game of catch-up comes to these new things. 
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_edpck8edpck8edpc" src="https://github.com/user-attachments/assets/302a7211-544b-4181-bdf9-a0a91e76187b" />
+
+---------------------------------------------------------------------------------------------------------------------------------  
+
+So people still don't always get along nowadays. The Pan-Something movements usually fizzle down sooner rather than later. Maybe it's because of 
+the money? But that's just the surface explanation. 
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_6e9jwm6e9jwm6e9j" src="https://github.com/user-attachments/assets/b424286a-2be7-424d-8b1d-6ff02a57334e" />
+
+----------------------------------------------------------------------------------------------------------------------------------  
+
+People still have their customs and all. Basic labor itself is already a challenge. Maybe the work doesn't get paid. Technology can be dangerous. 
+Natural resources is profit is war? Typical lines of thinking. At least give multinational corporations some credit for trying to smooth out the 
+rough points. 
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_ue4krfue4krfue4k" src="https://github.com/user-attachments/assets/6ebda7bc-2fba-429e-9238-a1414b8361bc" />
+
+----------------------------------------------------------------------------------------------------------------------------------- 
+
+OK. I get that the guy is basically trying to turn his back on one big country to push for another big country. That may come off as offensive to 
+some people, but hey... at least give him credit for unorthodox business acumen. 
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_jboio9jboio9jboi" src="https://github.com/user-attachments/assets/d726a73a-a616-4881-adbb-97221689d93b" />
+
+------------------------------------------------------------------------------------------------------------------------------------
+
+What a bother, right. The barriers everyone goes through. Through thick or thin, there's always some resistance, if not from the top, then from the 
+bottom. Fighting to work. Fighting for the brand. For the market share.  
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_1e5u1b1e5u1b1e5u" src="https://github.com/user-attachments/assets/5f833fe1-70c8-495a-81c6-1bd885d4ee05" />
+
+-------------------------------------------------------------------------------------------------------------------------------------  
+
+There are these families from different backgrounds, and they all live in one town. Probably a democratic one. And they are all kinda over-competitive 
+with each other. An outspoken representative for solidarity has to speak up. Doesn't this look familiar? 
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_h2sbnoh2sbnoh2sb" src="https://github.com/user-attachments/assets/c96e5c78-cdc3-4338-b402-3e11a105510c" />
