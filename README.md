@@ -217,7 +217,7 @@ with each other. An outspoken representative for solidarity has to speak up. Doe
 
 --------------------------------------------------------------------------------------------------------------------------------------  
 
-So that's how the economy has really been in a lot of places in the developed world. And I can't honestly say that it's Protestant modesty. No. It's 
+So that's how the economy has really become in a lot of places in the developed world. And I can't honestly say that it's Protestant modesty. No. It's 
 austerity. The austerity is real. 
 
 <img width="1024" height="1024" alt="Gemini_Generated_Image_ji6r9iji6r9iji6r" src="https://github.com/user-attachments/assets/533607bd-85d8-453c-b01d-f848bf6e461a" />
