@@ -130,3 +130,9 @@ Looks like another day of reports on troublesome people to the Generalismo. I gu
 And the utility of workers, despite the official unemployment, impressive...  
 
 <img width="1024" height="1024" alt="Gemini_Generated_Image_j0lmulj0lmulj0lm" src="https://github.com/user-attachments/assets/308b55a8-5629-41d1-abf3-540f4fd2bab7" />
+
+--------------------------------------------------------------------------------------------------------------------------------  
+
+Is this Illuminati or Anti-Illuminati? And what difference does it make?  
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_i8v1vdi8v1vdi8v1" src="https://github.com/user-attachments/assets/bee18eca-3acc-4832-b2f8-d6e9374f8639" />
