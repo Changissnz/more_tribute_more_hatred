@@ -118,7 +118,7 @@ role-playing either. So serious and genuine interaction.
 
 ------------------------------------------------------------------------------------------------------------------------------
 
-So what if it's a connected and small world? If you don't really think about, it's random for some person that owes another person 
+So what if it's a connected and small world? If you don't really think about, it's random for some person to owe another person 
 halfway across the world. If you don't really think about, it's not random for colleagues and associates to already be made. Nothing 
 much changes with connections, without connections. 
 
