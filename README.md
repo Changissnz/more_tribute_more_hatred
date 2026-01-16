@@ -224,7 +224,7 @@ austerity. The austerity is real.
 
 --------------------------------------------------------------------------------------------------------------------------------------  
 
-Look at them two. Sharing "cultural dialogue". Resolutions from the other side. Look out everyone! This player Tommy Chang comes from tough upbringing. 
+Look at them two. Sharing "cultural dialogue". Resolutions from the other side. Look out, everyone! This player Tommy Chang comes from tough upbringing. 
 Shanghai. 
 
 <img width="1024" height="1024" alt="Gemini_Generated_Image_dnwaqidnwaqidnwa" src="https://github.com/user-attachments/assets/401d6e21-966f-4665-95e9-a444b3b1733d" />
