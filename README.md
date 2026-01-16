@@ -139,7 +139,7 @@ Is this Illuminati or Anti-Illuminati? And what difference does it make?
 
 --------------------------------------------------------------------------------------------------------------------------------  
 
-Sounds accurate on the state of affairs. The whole power in numbers mantra. And that's why when things aren't deliberately, they actually 
+Sounds accurate on the state of affairs. The whole power in numbers mantra. And that's why when things aren't deliberately rigged, they kinda 
 still are. Human stupidity. Or human negligence? 
 
 <img width="1024" height="1024" alt="Gemini_Generated_Image_qh2bgjqh2bgjqh2b" src="https://github.com/user-attachments/assets/74df4ddf-5bb5-4709-b242-e3590479ac97" />
