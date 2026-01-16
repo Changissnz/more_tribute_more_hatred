@@ -116,3 +116,10 @@ role-playing either. So serious and genuine interaction.
 
 <img width="1024" height="1024" alt="Gemini_Generated_Image_dwgj1gdwgj1gdwgj" src="https://github.com/user-attachments/assets/36636584-1a89-4612-a508-7030d131aafb" />
 
+------------------------------------------------------------------------------------------------------------------------------
+
+So what if it's a connected and small world? If you don't really think about, it's random for some person that owes another person 
+halfway across the world. If you don't really think about, it's not random for colleagues and associates to already be made. Nothing 
+much changes with connections, without connections. 
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_gx68vsgx68vsgx68" src="https://github.com/user-attachments/assets/e584463c-734c-4f75-8c6e-f5c68279e62e" />
