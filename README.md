@@ -136,3 +136,18 @@ And the utility of workers, despite the official unemployment, impressive...
 Is this Illuminati or Anti-Illuminati? And what difference does it make?  
 
 <img width="1024" height="1024" alt="Gemini_Generated_Image_i8v1vdi8v1vdi8v1" src="https://github.com/user-attachments/assets/bee18eca-3acc-4832-b2f8-d6e9374f8639" />
+
+--------------------------------------------------------------------------------------------------------------------------------  
+
+Sounds accurate on the state of affairs. The whole power in numbers mantra. And that's why when things aren't deliberately, they actually 
+still are. Human stupidity. Or human negligence? 
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_qh2bgjqh2bgjqh2b" src="https://github.com/user-attachments/assets/74df4ddf-5bb5-4709-b242-e3590479ac97" />
+
+--------------------------------------------------------------------------------------------------------------------------------  
+
+Looks like them two are doing fine for themselves. Sleek suits and all. But on that logic, every person that's not on their deathbed is 
+technically doing fine. There's no need for more. Modest don't ask. And to ask is to ask for problems. Got it. This is not the world of 
+being. This the world of order. 
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_ianxd2ianxd2ianx" src="https://github.com/user-attachments/assets/dfcbb2bf-bc5e-4928-ac82-748216550699" />
