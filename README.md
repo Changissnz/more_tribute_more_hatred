@@ -123,3 +123,10 @@ halfway across the world. If you don't really think about, it's not random for c
 much changes with connections, without connections. 
 
 <img width="1024" height="1024" alt="Gemini_Generated_Image_gx68vsgx68vsgx68" src="https://github.com/user-attachments/assets/e584463c-734c-4f75-8c6e-f5c68279e62e" />
+
+-------------------------------------------------------------------------------------------------------------------------------  
+
+Looks like another day of reports on troublesome people to the Generalismo. I guess "when one door closes, another opens" is in this. 
+And the utility of workers, despite the official unemployment, impressive...  
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_j0lmulj0lmulj0lm" src="https://github.com/user-attachments/assets/308b55a8-5629-41d1-abf3-540f4fd2bab7" />
