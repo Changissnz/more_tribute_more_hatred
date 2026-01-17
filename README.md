@@ -316,3 +316,10 @@ close to when he retires, he will publish a novel, dramatization of all these in
 Wow. Who ever knew that two people from two different family trees could spell things out so clearly in one setting? Not. Kidding. 
 
 <img width="1024" height="1024" alt="Gemini_Generated_Image_59ig2z59ig2z59ig" src="https://github.com/user-attachments/assets/94396a00-a5e8-47c6-8e95-03c30fa602f7" />
+
+--------------------------------------------------------------------------------------------------------------------------------------------------  
+
+No surprises here. First, there was the Holy Trinity. Then respect thy elders. Now this... all grown up. Assumptions and doubt from above, assumptions 
+and rejection from below. Equality, anyone? This here is equality, right?  
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_54zv5i54zv5i54zv" src="https://github.com/user-attachments/assets/9e14b07e-c440-45b9-9e7f-af10a2ad4de7" />
