@@ -296,3 +296,10 @@ Is this scene really that crazy from reality? It's only right to give everyone t
 what difference has it ever made to most people?  
 
 <img width="1024" height="1024" alt="Gemini_Generated_Image_15i68215i68215i6" src="https://github.com/user-attachments/assets/c93855e0-a7cf-4b6e-8104-e7f4c0207bbb" />
+
+-----------------------------------------------------------------------------------------------------------------------------------------------  
+
+When someone has been playing an act for a while, it's hard to think that every thing they do must also be an act. Voila. The blurring of drama and real life. Globalized 
+style. 
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_70vjxu70vjxu70vj" src="https://github.com/user-attachments/assets/cdb97351-dee2-478e-b783-4548bbe3ec77" />
