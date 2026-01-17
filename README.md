@@ -282,3 +282,10 @@ That's not very nice, isn't it? Not only does Heaven knows he's miserable now, b
 But at least the two are not torturing their subjects in worse ways. 
 
 <img width="1024" height="1024" alt="Gemini_Generated_Image_gmov6ngmov6ngmov" src="https://github.com/user-attachments/assets/50b549a9-32a6-43a6-a76f-5bde2ed810f5" />
+
+----------------------------------------------------------------------------------------------------------------------------------------------  
+
+OK. First of all, how many movies going back to the 80's have been made on attractive women at the beach, saying really sweet things to vulnerable men? Too many for 
+me to count. Too many that an AI LLM (artificial intelligence large language model) can produce this scene. 
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_qnn58tqnn58tqnn5" src="https://github.com/user-attachments/assets/2298835a-d4cd-4762-8797-559786c9b881" />
