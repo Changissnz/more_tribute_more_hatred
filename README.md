@@ -330,3 +330,10 @@ Check this out. How can this be put into more relatable terms? "Sexiancas de la 
 apology comes in many forms. But I guess some people can only stoop low when doing anything. 
 
 <img width="1024" height="1024" alt="Gemini_Generated_Image_56lnln56lnln56ln" src="https://github.com/user-attachments/assets/4dd7be22-78bd-4525-9b41-08b5cf95c184" />
+
+----------------------------------------------------------------------------------------------------------------------------------------------------  
+
+Well, that clarified some things. And both of them, because of their background and what they do, must be excellent examples for their people. A display of humility on one 
+hand, and a display of order and strength on the other. 
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_rpd1jfrpd1jfrpd1" src="https://github.com/user-attachments/assets/fca563a7-3ddd-4a6d-bac6-b66244971219" />
