@@ -303,3 +303,10 @@ When someone has been playing an act for a while, it's not hard to think that ev
 style. 
 
 <img width="1024" height="1024" alt="Gemini_Generated_Image_70vjxu70vjxu70vj" src="https://github.com/user-attachments/assets/cdb97351-dee2-478e-b783-4548bbe3ec77" />
+
+------------------------------------------------------------------------------------------------------------------------------------------------  
+
+The detective has an analytical report to make. It's not his fault globalization enabled this to play out. But it is his responsibility to investigate. Duty calls. Sometime 
+close to when he retires, he will publish a novel, dramatization of all these intriguing stories. Round the world. 
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_tf3zadtf3zadtf3z" src="https://github.com/user-attachments/assets/50fb0ae5-5e8f-42c1-be9c-5918b361358a" />
