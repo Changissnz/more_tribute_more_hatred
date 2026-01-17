@@ -228,3 +228,9 @@ Look at them two. Sharing "cultural dialogue". Resolutions from the other side. 
 Shanghai. 
 
 <img width="1024" height="1024" alt="Gemini_Generated_Image_dnwaqidnwaqidnwa" src="https://github.com/user-attachments/assets/401d6e21-966f-4665-95e9-a444b3b1733d" />
+
+---------------------------------------------------------------------------------------------------------------------------------------  
+
+Is this crazy or what? Is the world moving backwards or something? This kinda looks what people keep asking for, these past three centuries. Just saying.  
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_36jm2q36jm2q36jm" src="https://github.com/user-attachments/assets/68c3adbb-cf50-4dbc-a21e-8a3b0f6a32b5" />
