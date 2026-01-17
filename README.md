@@ -268,3 +268,10 @@ Huh... what would I know? If it doesn't hit the press, it's like it never existe
 mysteries in this world, brought to you by yours truly, humanity across borders.  
 
 <img width="1024" height="1024" alt="Gemini_Generated_Image_4o5xaf4o5xaf4o5x" src="https://github.com/user-attachments/assets/816e3368-55f6-42db-afb6-d9e6641204ee" />
+
+--------------------------------------------------------------------------------------------------------------------------------------------  
+
+Looks like a deal. Given how official the two look, nice suits by the way, the deal would probably benefit everyone fairly, or at least, that's the acceptable thing 
+to say. 
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_etbsreetbsreetbs" src="https://github.com/user-attachments/assets/08dad927-4616-42b5-9262-f804c85c1288" />
