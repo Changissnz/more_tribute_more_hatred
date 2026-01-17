@@ -261,3 +261,10 @@ And the two company men have business as usual after.
 Big business...it's like that nowadays. First comes, first served. 
 
 <img width="1024" height="1024" alt="Gemini_Generated_Image_oxz76joxz76joxz7" src="https://github.com/user-attachments/assets/86f93786-74bc-4ffd-a47e-daafbe9ee450" />
+
+------------------------------------------------------------------------------------------------------------------------------------------  
+
+Huh... what would I know? If it doesn't hit the press, it's like it never existed. From telephone to TV to smartphone, there's still a lot of 
+mysteries in this world, brought to you by yours truly, humanity across borders.  
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_4o5xaf4o5xaf4o5x" src="https://github.com/user-attachments/assets/816e3368-55f6-42db-afb6-d9e6641204ee" />
