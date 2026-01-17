@@ -319,7 +319,7 @@ Wow. Who ever knew that two people from two different family trees could spell t
 
 --------------------------------------------------------------------------------------------------------------------------------------------------  
 
-No surprises here. First, there was the Holy Trinity. Then respect thy elders. Now this... all grown up. Assumptions and doubt from above, assumptions 
+No surprises here. A lot of expectations. First, there is the Holy Trinity. Then respect for thy elders. Now this... all grown up. Assumptions and doubt from above, assumptions 
 and rejection from below. Equality, anyone? This here is equality, right?  
 
 <img width="1024" height="1024" alt="Gemini_Generated_Image_54zv5i54zv5i54zv" src="https://github.com/user-attachments/assets/9e14b07e-c440-45b9-9e7f-af10a2ad4de7" />
