@@ -241,3 +241,10 @@ Socialism and family values without borders is nice and all. But if you want the
 tear things apart in half.  
 
 <img width="1024" height="1024" alt="Gemini_Generated_Image_4c8b8s4c8b8s4c8b" src="https://github.com/user-attachments/assets/35179912-bb34-4c15-a7da-2e533696be18" />
+
+----------------------------------------------------------------------------------------------------------------------------------------  
+
+Such impasse. How some people need all these blessings to move forward. And it's not because they are not independent. It's because they can't be. It's because 
+the world is so cold to some people that there's not much room for individual choice. 
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_7fzz3i7fzz3i7fzz" src="https://github.com/user-attachments/assets/0fb1269a-e5bd-4848-94b4-8025ed89dcaa" />
