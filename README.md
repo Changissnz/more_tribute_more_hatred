@@ -299,7 +299,7 @@ what difference has it ever made to most people?
 
 -----------------------------------------------------------------------------------------------------------------------------------------------  
 
-When someone has been playing an act for a while, it's hard to think that every thing they do must also be an act. Voila. The blurring of drama and real life. Globalized 
+When someone has been playing an act for a while, it's not hard to think that every thing they do must also be an act. Voila. The blurring of drama and real life. Globalized 
 style. 
 
 <img width="1024" height="1024" alt="Gemini_Generated_Image_70vjxu70vjxu70vj" src="https://github.com/user-attachments/assets/cdb97351-dee2-478e-b783-4548bbe3ec77" />
