@@ -234,3 +234,10 @@ Shanghai.
 Is this crazy or what? Is the world moving backwards or something? This kinda looks what people keep asking for, these past three centuries. Just saying.  
 
 <img width="1024" height="1024" alt="Gemini_Generated_Image_36jm2q36jm2q36jm" src="https://github.com/user-attachments/assets/68c3adbb-cf50-4dbc-a21e-8a3b0f6a32b5" />
+
+---------------------------------------------------------------------------------------------------------------------------------------  
+
+Socialism and family values without borders is nice and all. But if you want the real story, some things are very hard to come together again once conditions 
+tear things apart in half.  
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_4c8b8s4c8b8s4c8b" src="https://github.com/user-attachments/assets/35179912-bb34-4c15-a7da-2e533696be18" />
