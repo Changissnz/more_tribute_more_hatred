@@ -1,4 +1,5 @@
-# More Tribute, More Hatred 
+# More Tribute, More Hatred  
+## concluded: 1/17/26  
 
 Good ol hardy individuals have a right to hate and fight for the right to say it, too. 
 Socialists already take hating for granted. 
