@@ -323,3 +323,10 @@ No surprises here. A lot of expectations. First, there is the Holy Trinity. Then
 and rejection from below. Equality, anyone? This here is equality, right?  
 
 <img width="1024" height="1024" alt="Gemini_Generated_Image_54zv5i54zv5i54zv" src="https://github.com/user-attachments/assets/9e14b07e-c440-45b9-9e7f-af10a2ad4de7" />
+
+--------------------------------------------------------------------------------------------------------------------------------------------------  
+
+Check this out. How can this be put into more relatable terms? "Sexiancas de la redempschionnes. Aufstandovich. Tu bod. Tu bod." Let's face it, now. We all make mistakes, and 
+apology comes in many forms. But I guess some people can only stoop low when doing anything. 
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_56lnln56lnln56ln" src="https://github.com/user-attachments/assets/4dd7be22-78bd-4525-9b41-08b5cf95c184" />
