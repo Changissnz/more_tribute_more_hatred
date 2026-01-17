@@ -289,3 +289,10 @@ OK. First of all, how many movies going back to the 80's have been made on attra
 me to count. Too many that an AI LLM (artificial intelligence large language model) can produce this scene. 
 
 <img width="1024" height="1024" alt="Gemini_Generated_Image_qnn58tqnn58tqnn5" src="https://github.com/user-attachments/assets/2298835a-d4cd-4762-8797-559786c9b881" />
+
+-----------------------------------------------------------------------------------------------------------------------------------------------  
+
+Is this scene really that crazy from reality? It's only right to give everyone the benefit of a doubt. How much crazier is it to assume otherwise? Last but not least, 
+what difference has it ever made to most people?  
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_15i68215i68215i6" src="https://github.com/user-attachments/assets/c93855e0-a7cf-4b6e-8104-e7f4c0207bbb" />
