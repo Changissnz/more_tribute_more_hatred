@@ -275,3 +275,10 @@ Looks like a deal. Given how official the two look, nice suits by the way, the d
 to say. 
 
 <img width="1024" height="1024" alt="Gemini_Generated_Image_etbsreetbsreetbs" src="https://github.com/user-attachments/assets/08dad927-4616-42b5-9262-f804c85c1288" />
+
+---------------------------------------------------------------------------------------------------------------------------------------------  
+
+That's not very nice, isn't it? Not only does Heaven knows he's miserable now, but a guy in that position poking fun in that way. Reminds me of my high school years. 
+But at least the two are not torturing their subjects in worse ways. 
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_gmov6ngmov6ngmov" src="https://github.com/user-attachments/assets/50b549a9-32a6-43a6-a76f-5bde2ed810f5" />
