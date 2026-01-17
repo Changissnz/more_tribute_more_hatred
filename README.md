@@ -337,3 +337,9 @@ Well, that clarified some things. And both of them, because of their background 
 hand, and a display of order and strength on the other. 
 
 <img width="1024" height="1024" alt="Gemini_Generated_Image_rpd1jfrpd1jfrpd1" src="https://github.com/user-attachments/assets/fca563a7-3ddd-4a6d-bac6-b66244971219" />
+
+-----------------------------------------------------------------------------------------------------------------------------------------------------  
+
+How curious. This must be the darker side of IT business and social affairs.  
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_7dq15x7dq15x7dq1" src="https://github.com/user-attachments/assets/0bbc32c7-071a-4bd8-9b64-f37cbc771d9e" />
