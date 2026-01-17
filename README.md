@@ -310,3 +310,9 @@ The detective has an analytical report to make. It's not his fault globalization
 close to when he retires, he will publish a novel, dramatization of all these intriguing stories. Round the world. 
 
 <img width="1024" height="1024" alt="Gemini_Generated_Image_tf3zadtf3zadtf3z" src="https://github.com/user-attachments/assets/50fb0ae5-5e8f-42c1-be9c-5918b361358a" />
+
+-------------------------------------------------------------------------------------------------------------------------------------------------  
+
+Wow. Who ever knew that two people from two different family trees could spell things out so clearly? Not. Kidding. 
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_59ig2z59ig2z59ig" src="https://github.com/user-attachments/assets/94396a00-a5e8-47c6-8e95-03c30fa602f7" />
